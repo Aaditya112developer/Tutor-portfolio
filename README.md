@@ -19,9 +19,8 @@
 
 **Mark Sarafa scored 1470 on the SAT!**
 
-*"Teacher ❤️. Because of you 😭 i am able to score this. Thank you Aadi.i will always remember you
-
-"*
+*"Teacher ❤️. Because of you 😭 i am able to score this. Thank you Aadi.i will always remember you"*|
+---
 ---
 ---
 ## Want to improve your SAT score?
